@@ -1,6 +1,6 @@
 # My Bucket List
 
-## Family and friends
+## go into space
  * Save for kids' college education
  * ~~Organize a family portrait~~
  * Throw a surprise party for a loved one
